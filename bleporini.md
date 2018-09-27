@@ -2,7 +2,7 @@
 
 ##### (Job)
 
-***
+*** Développeur visual basic
 
 ### PROFIL
 
